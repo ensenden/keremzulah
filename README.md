@@ -1,2 +1,0 @@
-# keremzulah
-yok
